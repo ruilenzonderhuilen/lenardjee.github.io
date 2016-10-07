@@ -1,2 +1,2 @@
 # lenardjee.github.io
-hahahaha
+voor school
